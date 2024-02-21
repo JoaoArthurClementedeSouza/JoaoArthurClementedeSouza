@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @JoaoArthurClementedeSouza
+- 👋 Hi, I’m Joao Arthur Clemente de Souza
 - 👀 I’m interested in jovem aprendiz 
 - 🌱 I’m currently learning design gráfico 
 - 💞️ I’m looking to collaborate on minha futura equipe
