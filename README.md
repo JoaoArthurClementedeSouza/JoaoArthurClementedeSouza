@@ -5,7 +5,9 @@
 - 📫 How to reach me por meio do meu nome e meu email 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: gosto muito de ser ágil, e consigo ao mesmo tempo calmo, entregando um projeto bom para ser exposto e avaliado
-- => •Colégio Ensino Médio Técnico.  2° ano. Técnico em Design Gráfico. SESI -GAMA -DF. Previsão 12/2025.
+
+ => •Colégio Ensino Médio Técnico.  2° ano. Técnico em Design Gráfico. SESI -GAMA -DF. Previsão 12/2025.
+ 
 •01 -Curso Inglês. Wizard-Iguatemi -MS. 12/2015.
 
 •02 -Curso AUTOCAD. -Estúdio Spinelli Arquitetura Cursos e Capacitações. Cascavel -PR. 01/2022.
